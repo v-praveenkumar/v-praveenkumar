@@ -7,6 +7,6 @@ Hola, I'm praveen kumar 👋
 
 -💬 Ask me about recent technologies.
 
--📫 How to reach me: vpraveen72002@gmail.com.
+-📫 How to reach me: v.praveenkumar257@gmail.com.
 
 -😄 Pronouns: he/his.
